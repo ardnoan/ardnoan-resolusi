@@ -1,0 +1,1 @@
+# ardnoan-resolusi
